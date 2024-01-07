@@ -6,7 +6,7 @@ I will code for at least an hour every day at least for the next 100 days after 
 
 Start Date
 
-07th January 2024
+08th January 2024
 
 Rules
 
